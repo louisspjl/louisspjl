@@ -32,7 +32,7 @@
 ### 📫 Contactez-moi
 
 - 📧 **Mail professionnel** : louispujolle4@gmail.com  
-- 💬 **Discord** : `soutenant`  
+- 💬 **Discord** : `louisspjl`  
 - 🐦 **Twitter** : [@louisspjl](https://x.com/louisspjl)
 
 ---
